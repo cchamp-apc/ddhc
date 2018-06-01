@@ -45,3 +45,6 @@ renouvellement régulier des postes informatiques
 sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
+
+**Art. 20.** 
+
