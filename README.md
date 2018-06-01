@@ -38,11 +38,9 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 17.** La propriété étant un droit inviolable et sacré, nul ne peut en être privé, si ce n'est lorsque la nécessité publique, légalement constatée, l'exige évidemment, et sous la condition d'une juste et préalable indemnité.
 
-**Art. 17.1** Les dépenses d'administration devront prendre en compte le 
-renouvellement régulier des postes informatiques
+**Art. 17.1** Les dépenses d'administration devront prendre en compte le renouvellement régulier des postes informatiques
 
-**Art. 18.** La viennoiserie composée de pâte feuilletée fourrée au chocolat
-sera dorénavant connue sous le nom de pain au chocolat.
+**Art. 18.** La viennoiserie composée de pâte feuilletée fourrée au chocolat sera dorénavant connue sous le nom de pain au chocolat.
 
 **Art. 19.** Nul ne peut être privé de chocolatine par l'article 18
 
